@@ -1,0 +1,1 @@
+# constitution-de-groupe-aleatoire
